@@ -1,0 +1,2 @@
+# premium-tube-set-001-tube-setting-bearing-cut-cra
+Tired of losing track of stone sizes, tube gauges, and cut angles across your bench? The Tube Setting &amp; Bearing Cut Craft Studio is your all-in-one command center for precision jewelry making.  This Notion template transforms scattered notes and sticky pads into a cohesive system that tracks every project, stone, tool, and cut specification. No mor
